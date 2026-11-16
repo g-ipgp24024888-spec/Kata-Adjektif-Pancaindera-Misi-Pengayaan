@@ -1,0 +1,1 @@
+# Kata-Adjektif-Pancaindera-Misi-Pengayaan
